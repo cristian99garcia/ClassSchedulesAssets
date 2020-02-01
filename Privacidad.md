@@ -1,0 +1,1 @@
+Los datos registrados en esta aplicación no son recolectados o analizados de ninguna manera, solo sirven y están a disposicin del usuario que los crea y con quien los comparte. No se compartirá ningún dato sin el concentimiento del usuario
